@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with smart nft trading bot | real-time-monitoring + price-impact-analysis, the #1 nft trading bot. Includes real-time-monitoring and price-impact-analysis
 
 
 
